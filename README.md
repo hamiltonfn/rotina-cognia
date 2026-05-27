@@ -1,1 +1,1 @@
-# rotina-cognia
+# https://rotinacognia.lovable.app/
